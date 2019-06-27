@@ -1,2 +1,2 @@
-# Eto labi po timpu
+# Максимов Олег
 # Repository
